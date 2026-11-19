@@ -1,6 +1,6 @@
 # Política de Privacidad — Crypta Scape
 
-**Última actualización:** [9 de noviembre de 2026]
+**Última actualización:** [19 de noviembre de 2026]
 
 Esta Política de Privacidad describe cómo se maneja la información en el juego **Crypta Scape**, desarrollado como un proyecto independiente.
 
